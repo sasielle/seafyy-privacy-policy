@@ -1,0 +1,1 @@
+# seafyy-privacy-policy
